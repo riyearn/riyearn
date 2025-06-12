@@ -15,6 +15,8 @@ i tend to make nsfw & kys / kms / kts jokes, completely disregarding my age. i'm
 
 for randos, use tone tags if wanted. feel free to c+h, interact, or anything of the likes. if you're going c+h, please whisper me so i won't move (^_^). also, i don't respond to whispers unless genuinely needed so i'm sorry for that
 
+**avoid shipping me with my friends. whomever i'm with is a friend, as i don't have a partner.**
+
 #
 
 **REFRAIN FROM INTERACTING.**
