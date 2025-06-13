@@ -1,6 +1,8 @@
 <img alt="header" src="https://file.garden/Zq3GPYQkHypFo3Wi/donottherizz">
 you probably saw me at docks / party island / or basically anywhere, hi. about me down there vvv or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general, i don't normally play alone. i like c+h'ing with them so like yeah ( queerassiers / snorlax )
 
+**find me offtabbed most of the time, so w2i unless i'm chatting/talking actively**
+
 ***
 
 **RIYO**  ᓚᘏᗢ  **RJ**  ， PLAYER / CAELUS / CHANCE IRL *!*
