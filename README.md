@@ -1,7 +1,8 @@
 <img alt="header" src="https://file.garden/Zq3GPYQkHypFo3Wi/donottherizz">
-you probably saw me at docks / party island / or basically anywhere, hi. about me down there vvv or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general, i don't normally play alone. i like c+h'ing with them so like yeah ( queerassiers / snorlax )
 
-**find me offtabbed most of the time, so w2i unless i'm chatting/talking actively**
+you probably saw me at docks / party island / or basically anywhere, hi. about me down there or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general, i don't normally play alone. i like c+h'ing with them so like yeah ( queerassiers / snorlax )
+
+you'll find me offtabbed most of the time, unless i'm in a mafia game; i tend to multitask while doing so—w2i unless i'm chatting/talking actively.
 
 ***
 
@@ -24,3 +25,5 @@ for randos, use tone tags if wanted. feel free to c+h, interact, or anything of 
 **REFRAIN FROM INTERACTING.**
 
 i don't really have a list; but just don't be under 11>, i don't mind those who're adults. and don't be a weirdo and/or a bigot or whatever. also don't be a certain someone named 'vee'.
+
+***
