@@ -10,7 +10,7 @@ you'll find me offtabbed most of the time, unless i'm in a mafia game; i tend to
 
 ***
 
-**RIYO**  ᓚᘏᗢ  **RJ**  ， PLAYER / CAELUS / CHANCE IRL *!*
+**RIYO**  ᓚᘏᗢ  **RJ**  ， PLAYER / CAELUS / CHANCE / AZURE IRL *!*
 
 any / pronouns  **minor**  *further info in pronouns.page . .*
 
