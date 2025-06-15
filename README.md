@@ -1,4 +1,8 @@
-<img alt="header" src="https://file.garden/Zq3GPYQkHypFo3Wi/donottherizz">
+<img align="middle" alt="header" width="500" src="https://file.garden/Zq3GPYQkHypFo3Wi/commisionnerenow">
+
+⬆️ **art by @nereherrman**, commission him NOW!
+
+#
 
 you probably saw me at docks / party island / or basically anywhere, hi. about me down there or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general, i don't normally play alone. i like c+h'ing with them so like yeah ( queerassiers / snorlax )
 
@@ -26,4 +30,10 @@ for randos, use tone tags if wanted. feel free to c+h, interact, or anything of 
 
 i don't really have a list; but just don't be under 11>, i don't mind those who're adults. and don't be a weirdo and/or a bigot or whatever. also don't be a certain someone named 'vee'.
 
+#
+
+**@mewocutter** ! ➡️ <img align="middle" alt="header" width="300" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseynoq">  <img align="middle" alt="header" width="300" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionpeppinonow"> ⬅️ **@worldwidenoise** !
+
 ***
+
+all of the arts shown in this README are **commissioned off of my friends**, so give them robux NOW
