@@ -32,7 +32,7 @@ i don't really have a list; but just don't be under 11>, i don't mind those who'
 
 #
 
-**@mewocutter** ! ➡️ <img align="middle" alt="header" width="300" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseynoq">  <img align="middle" alt="header" width="300" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionpeppinonow"> ⬅️ **@worldwidenoise** !
+**@mewocutter** ! ➡️ <img align="middle" alt="header" width="200" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseynoq">  <img align="middle" alt="header" width="200" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionpeppinonow"> ⬅️ **@worldwidenoise** !
 
 ***
 
