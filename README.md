@@ -16,6 +16,10 @@ any / pronouns  **minor**  *further info in pronouns.page . .*
 
 #
 
+<img align="middle" alt="header" width="500" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseunoqw"> ⬅️ **@mewocutter** !
+
+#
+
 **BEFORE YOU FOLLOW，BE WARY..**
 
 i tend to make nsfw & kys / kms / kts jokes, completely disregarding my age. i'm alright with basically *anything* if you're a *close friend* of mine, if not, i might have a problem on how you interact ( i'm not trying to be mean; i **genuinely** can't help it. ) some of my jokes may be regarded as 'dark humor', so i apologize for that. i also jokingly + affectionately + playfully insult others; even if they come off as 'dry', it isn't serious. please don't take my comments to heart! besides that, i'm sensitive easy to rile up and provoke, so, for randos i highly recommend using tone tags on me, and i'll do the same. i also tend to cuss a lot, so please, don't mind asking me to tone it down. i'm not one for 'cd / ct' but i highly advise not to cover my skins with negative intent. 
