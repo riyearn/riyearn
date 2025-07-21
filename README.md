@@ -10,10 +10,9 @@ you'll find me offtabbed most of the time, unless i'm in a mafia game; i tend to
 
 ***
 
-**RIYO**  ᓚᘏᗢ  **RJ**  ， PLAYER ( & 1x1x1x1 ) / CAELUS / CHANCE / AZURE IRL *!*
+**RIYO**  ᓚᘏᗢ  **RJ**  any / pronouns  **minor**  *further info in pronouns.page . .*
 
-any / pronouns  **minor**  *further info in pronouns.page . .*
-
+PLAYER ( & 1x1x1x1 ) / CAELUS / CHANCE / ARTFUL / AZURE IRL *!*
 #
 
 <img align="middle" alt="header" width="500" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseunoqw"> ⬅️ **@mewocutter** !
