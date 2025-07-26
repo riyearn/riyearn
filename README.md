@@ -26,7 +26,7 @@ player、1x1x1x1、caelus、chance、artful、azure **heavy kinnies / irls**
 
 i tend to make nsfw & kys / kms / kts jokes, completely disregarding my age. 
 
-i'm alright with basically *anything* if you're a *close friend* of mine, if not, i might have a problem on how you interact ( i'm not trying to be mean; i **genuinely** can't help it. )
+i'm alright with basically *anything* if you're a *close friend* of mine, if not, i might have a problem on how you interact if it leans moreover to the 'negative' side ( i'm not trying to be mean; i **genuinely** can't help it. )
 
 some of my jokes may be regarded as 'dark humor', so i apologize for that. i also jokingly + affectionately + playfully insult others; even if they come off as 'dry', it isn't serious. please don't take my comments to heart! besides that, i'm sensitive easy to rile up and provoke, so, for randos i highly recommend using tone tags on me, and i'll do the same.
 
@@ -34,7 +34,7 @@ i also tend to cuss a lot, so please, don't mind asking me to tone it down.
 
 i'm not one for 'cd / ct' but i'd prefer if you wouldn't cover me ( unless a friend )
 
-for randos, use tone tags if wanted. feel free to c+h, interact, or anything of the likes. if you're going c+h, i wouldn't rlly mind (^_^). also, i don't respond to whispers unless genuinely needed so i'm sorry for that
+for randos, use tone tags if wanted. feel free to c+h, interact, or anything of the likes. if you're going c+h, i wouldn't rlly mind (^_^). but, i'm not actively seeking friends and i have social anxiety despite being on the digital world
 
 **avoid shipping me with my friends. whomever i'm with is a friend, as i don't have a partner.**
 
