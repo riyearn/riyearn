@@ -20,7 +20,7 @@ player、1x1x1x1、caelus、chance、artful、azure **heavy kinnies / irls**
 
 ***typically find me in these skins! (^_^)***
 
-<img align="" alt="img" width="150" src="https://file.garden/Zq3GPYQkHypFo3Wi/ptplayer">
+<img align="" alt="img" width="150" src="https://file.garden/Zq3GPYQkHypFo3Wi/ptriyo">
 
 <img align="" alt="img" width="150" src="https://file.garden/Zq3GPYQkHypFo3Wi/ptplayer">
 
