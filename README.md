@@ -6,7 +6,7 @@
 
 you probably saw me at docks / party island / or basically anywhere, hi. 
 
-about me down there or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general. or you just happen to click my pony and get curious. i like c+h'ing with them so like yeah ( queerassiers / snorlax )
+about me down there or just click to my pronouns.page, i'm moreso seen in mafia games alongside with my friends. or just with friends in general.
 
 you'll find me offtabbed most of the time, unless i'm in a mafia game; i tend to multitask while doing so—w2i unless i'm chatting/talking actively.
 
@@ -18,7 +18,14 @@ player、1x1x1x1、caelus、chance、artful、azure **heavy kinnies / irls**
 
 #
 
-<img align="middle" alt="header" width="500" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseunoqw"> ⬅️ **@mewocutter** !
+***typically find me in these skins! (^_^)***
+
+<img align="left" alt="img" width="150" src="(https://file.garden/Zq3GPYQkHypFo3Wi/ptriyo)">
+<img align="left" alt="img" width="150" src="https://file.garden/Zq3GPYQkHypFo3Wi/ptplayer">
+<img align="left" alt="img" width="150" src="(https://file.garden/Zq3GPYQkHypFo3Wi/ptcutechance)">
+
+find me in the bakery's patio / sitting inside, or docks. usually i'll be there
+
 
 #
 
@@ -50,8 +57,3 @@ anyone with the user '@yurispew'. tt / td folks ( ponytown ). ken / ranb.
 
 #
 
-**@mewocutter** ! ➡️ <img align="middle" alt="header" width="200" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionkelseynoq">  <img align="middle" alt="header" width="200" src="https://file.garden/Zq3GPYQkHypFo3Wi/commissionpeppinonow"> ⬅️ **@worldwidenoise** !
-
-***
-
-all of the arts shown in this README are **commissioned off of my friends**, so give them robux NOW
